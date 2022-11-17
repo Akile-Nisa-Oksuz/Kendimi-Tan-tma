@@ -1,1 +1,0 @@
-# Kendimi-Tan-tma
